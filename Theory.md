@@ -1,5 +1,5 @@
 
-Here are 3 theories that are scientifically plausible and which are each conducive to thinking freely. If any of these seem incompatible with your spiritual or other understanding than not to worry since they aren't proven and are merely thought exercises. However, attachments to a particular spiritual ideal may itself be a barrier to selflessness. These may appear depressingly mechanical, but understanding them will lead to you being more selfless and loving, and feeling closer to the Spirit, God, or Energy that really is behind the mechanics, regardless of what the theory is.
+Here are 3 theories that are scientifically plausible and which are each conducive to thinking freely. If any of these seem incompatible with your spiritual or other understanding than not to worry since they aren't proven and are merely thought exercises. However, attachments to a particular spiritual ideal may itself be a barrier to selflessness. These may appear depressingly mechanical, but understanding them will lead to you being more selfless and loving, and feeling closer to the Spirit, God, Essence, or Energy that really is behind the mechanics, regardless of what the theory is.
 
 ## If it can happen it will happen ##
 
