@@ -7,7 +7,7 @@ Assume that all possible universes are happening at once, and "you" happen to be
 
 ## It is determined ##
 
-Assume that we understand physical rules to well below the level of neurons and chemical electrical impulse, and reductively "your" entire existence can be reduced back to that of a single cell that follows simple probabilistic and deterministic physical laws. So you have never had a free will. Moreover you can't take an action because of lack of free will, and one cannot take an action *because* of lack of free will since that action would have been the destined action anyway. It is literally impossible to commit suicide _because_ of knowing determinism. So one can only accept it and "float like a leaf on the river of life" (this is metaphor and doesn't equate to sitting on a couch doing any less activities, as that would itself be taking an action). Simply Be.
+Assume that we understand physical rules to well below the level of neurons and chemical electrical impulse, and reductively "your" entire existence can be reduced back to that of a single cell that follows simple probabilistic and deterministic physical laws. So you have never had a free will. Moreover you can't take an action because of lack of free will, and one cannot take an action *because* of lack of free will since that action would have been the destined action anyway. It is literally impossible to commit suicide or become depressed _because_ of knowing determinism. So one can only accept it and "float like a leaf on the river of life" (this is metaphor and doesn't equate to sitting on a couch doing any less activities, as that would itself be taking an action). Simply Be.
 
 You can learn more on this theory from:
 
