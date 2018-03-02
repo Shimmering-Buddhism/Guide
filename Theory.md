@@ -12,7 +12,7 @@ Assume that we understand physical rules to well below the level of neurons and 
 You can learn more on this theory from:
 
 * Sam Harris explanations
-* Douglas Hofstadter (ödel, Escher, Bach)
+* Douglas Hofstadter (Gödel, Escher, Bach)
 
 ## The hologram ##
 
